@@ -1,5 +1,5 @@
 # STASH
-## Saving Theatre Arts Scavenger Hunt
+## Saving Theater Arts Scavenger Hunt
 
 Welcome to STASH Boise, a wild, raucous, socially-distanced scavenger hunt that raises funds for community theaters in Boise, Idaho. 
 
