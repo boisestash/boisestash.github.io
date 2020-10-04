@@ -6,6 +6,7 @@
 	* If you come up with your team after registering, your team captain must email stashboise@gmail.com by Oct. 19 with the name of the team and the names of each team member. Please use the subject line "Team Formation."
 	* Teams must have 4-10 members. If you register without a team or your team has fewer than 4 members, STASH organizers will combine participants into teams beginning Oct. 20.
 	* Members of your household (children, pets, roommates, etc.) may assist you with completing items without being registered. However, they will not count toward the team size requirement unless they are registered.
+	* Individuals must be 13 or over to register.
 
 * __Submitting items.__ 
 	* All item submissions must be emailed to stashboise@gmail.com between the hunt hours of 7 p.m. Friday, Oct. 23, 2020, to noon Sunday, Oct. 25, 2020. 
