@@ -6,7 +6,9 @@
 	* If you come up with your team after registering, your team captain must email stashboise@gmail.com by Oct. 19 with the name of the team and the names of each team member. Please use the subject line "Team Formation."
 	* Teams must have 4-10 members. If you register without a team or your team has fewer than 4 members, STASH organizers will combine participants into teams beginning Oct. 20.
 	* Members of your household (children, pets, roommates, etc.) may assist you with completing items without being registered. However, they will not count toward the team size requirement unless they are registered.
-	* Individuals must be 13 or over to register.
+	* ~~Individuals must be 13 or over to register.~~ Individuals under 18 must have a parent or legal guardian register them, accept liability for them, and provide payment for them. Individuals under 13 who want to participate in any challenge that involves social media must have a human team member over 13 assist them.
+	* Pets, babies, imaginary friends and the ghost who lives in your basement count toward your team count as long as you yourself are an adult human being and are willing to register and pay for them.
+	* Individuals can be on more than one team _as long as all members of each team know and agree to it_. We don't approve of two-timers. We expect you to practice ethical non-monogamy.  
 
 * __Submitting items.__ 
 	* All item submissions must be emailed to stashboise@gmail.com between the hunt hours of 7 p.m. Friday, Oct. 23, 2020, to noon Sunday, Oct. 25, 2020. 
