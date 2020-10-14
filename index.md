@@ -7,7 +7,7 @@ Sign up now! The registration deadline is Oct. 19.
 
 STASH -- Saving Theater Arts Scavenger Hunt -- is offering the chance to support local community theaters and have fun doing it! Rent, utilities and other expenses don’t stop for our local theaters just because the pandemic prevents them from putting on shows, so we’re creating a virtual scavenger hunt Oct. 23-25 as a fundraiser to help support Boise Little Theater, Stage Coach Theatre, and Treasure Valley Children’s Theater through these difficult times.
 
-![Our inspired mascot](/assets/img/ShakesGhost.jpg)
+![Our inspired mascot](/assets/img/ShakesGhost2.jpg)
 
 STASH offers the following:
 
