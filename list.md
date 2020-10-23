@@ -8,7 +8,7 @@ Some items on this list are up to interpretation. Don’t freak out.
 
 Do not do anything illegal or unsafe when fulfilling these challenges. 
 
-All video challenges should be edited to under a minute unless otherwise specified, and should be posted to YouTube and the link sent in the body of the email. Photos should be submitted as jpegs. Drawing submissions can be created with digital art programs and saved directly as a jpeg and submitted, or you can take a photo or scan of a physical drawing (send as a jpeg). Text submissions should be submitted in the body of the email. All submissions should be emailed to stashboise@gmail.com.
+All submissions must be emailed to stashboise@gmail.com and contain the team name and challenge number in the subject line. All video challenges should be edited to under a minute unless otherwise specified, and should be posted to YouTube and the link sent in the body of the email. Photos should be submitted as jpegs. Drawing submissions can be created with digital art programs and saved directly as a jpeg and submitted, or you can take a photo or scan of a physical drawing (send as a jpeg). Text submissions should be submitted in the body of the email. 
 
 Point values indicate the minimum points that may be awarded, but extra credit is arbitrary and awarded at the judges’ pleasure.
 
