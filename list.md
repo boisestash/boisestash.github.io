@@ -22,7 +22,7 @@ Point values indicate the minimum points that may be awarded, but extra credit i
 8. PHOTO: Create lighting effects for a scene starring your action figures or plush animals, using only flashlights and car headlights. 18 points.
 9. PHOTO: You’ve been cast as an angry villager in Frankenstein. Make a fake flaming torch to chase the monster. 47 points.
 10. PHOTO/SCEENSHOT: Design a program or poster for a show about Covid-19 using things cut out from magazines or newspapers (this can be done digitally as well using media websites). 27 points.
-11. SCREENSHOT: Dream cast a show using celebrities (not local actors). Post your cast on social media with the hashtag #STASHBoise and tag your dream actors. Try to get your dream cast to send you a message, Tweet, FB message. 11 points; 52 points extra credit if you succeed in getting a bona fide celebrity to interact with your post.
+11. SCREENSHOT: Dream cast a show using celebrities (not local actors). Post your cast with the name of the show and the actors for each role on social media with the hashtag #STASHBoise and tag your dream actors. Try to get your dream cast to send you a message, Tweet, FB message. 11 points; 52 points extra credit if you succeed in getting a bona fide celebrity to interact with your post.
 12. DRAWING OR PHOTO: Design your dream theater. Add features that will make it safe to perform in during the zombie apocalypse. 49 points.
 13. VIDEO: Film a commercial for a show that you’ve seen or been involved with (1 minute max). 28 points.
 14. WRITTEN: It’s become very trendy to update a Shakespearean show to modern times. Reverse a modern show into the Shakespearean time frame. Find a scene or monologue that is available online and rewrite it into Shakespearean English. 57 points.
