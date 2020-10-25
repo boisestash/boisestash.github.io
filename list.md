@@ -1,6 +1,6 @@
 # The List
 
-The October 2020 STASH hunt is complete! Watch this space and follow our social media at https://www.facebook.com/stashboise for updates on the next scavenger hunt.
+The October 2020 STASH hunt is complete! Watch this space and [follow us](https://www.facebook.com/stashboise) for updates on the next scavenger hunt.
 
 <!--The list of scavenger hunt items will be posted here during the STASH Opening Ceremonies Zoom call, which will take place at 7 p.m. Friday, Oct. 23, 2020. -->
 
