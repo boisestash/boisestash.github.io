@@ -1,8 +1,10 @@
 # The List
 
+The October 2020 STASH hunt is complete! Watch this space and follow our social media at https://www.facebook.com/stashboise for updates on the next scavenger hunt.
+
 <!--The list of scavenger hunt items will be posted here during the STASH Opening Ceremonies Zoom call, which will take place at 7 p.m. Friday, Oct. 23, 2020. -->
 
-It is not required for your team to do all of the items on this list. Don’t be silly! That would be impossible! _Or would it._ Seriously, it’s okay if the weekend hits, and you suddenly aren’t feeling as gung ho as when you signed up. It’s a freaking pandemic. We should all get extra credit just for getting out of bed. So do as many as you like, or as many as you are excited about.
+<!--It is not required for your team to do all of the items on this list. Don’t be silly! That would be impossible! _Or would it._ Seriously, it’s okay if the weekend hits, and you suddenly aren’t feeling as gung ho as when you signed up. It’s a freaking pandemic. We should all get extra credit just for getting out of bed. So do as many as you like, or as many as you are excited about.
 
 Some items on this list are up to interpretation. Don’t freak out. 
 
@@ -103,4 +105,4 @@ Point values indicate the minimum points that may be awarded, but extra credit i
 89. DRAWING: We’ve been so focused on coronavirus it’s easy to forget the other plagues we’ve experienced in 2020. Murder hornets, anyone? And what about this [poisonous, extremely hairy caterpillar](https://www.cbsnews.com/news/virginia-officials-warn-about-hairy-venomous-caterpillars-socialdistance-away-from-this-caterpillar/) showing up in Virginia that can make you vomit or send you into shock if you touch it? There’s bound to be more out there! Draw an animal-based plague the public hasn’t heard about yet. 38 points.
 90. VIDEO: Our ShakesGhost mascot just screams to be animated. Please make the screaming stop and create an animation of him. No more than 15 seconds and he can be doing anything...family friendly. 82 points.
 91. DRAWING/VIDEO: The Sorceress of Zoom. 34 points.
-
+-->
